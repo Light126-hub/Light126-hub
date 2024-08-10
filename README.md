@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analysis 
 - 🌱 I’m currently learning data analysis with Dahel Techies
 - 💞️ I’m looking to collaborate on data analysis engagements
-- 📫 How to reach me [linkedin](https://www.linkedin.com/in/light-ledum-370a64139,[Email](lightledum@gmail.com)
+- 📫 How to reach me [linkedin](https://www.linkedin.com/in/light-ledum-370a64139),[Email](lightledum@gmail.com)
 - 😄 Pronouns: He
 - ⚡ Fun fact: reading and learning 
 
